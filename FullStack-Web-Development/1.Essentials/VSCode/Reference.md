@@ -1,0 +1,1 @@
+https://www.shortcutfoo.com/app/dojos/vscode-win
